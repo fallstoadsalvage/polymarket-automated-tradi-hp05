@@ -1,4 +1,4 @@
-# 
+# Polymarket rare Strategy: decentralized-trading & take-profit-orders is the best Polymarket strategy, featuring decentralized-trading and take-profit-orders. Smart, fast, and
 
 
 
